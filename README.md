@@ -2,7 +2,7 @@
 
 🎓 **MS in Business Analytics** at Avila University (Expected May 2025)  
 📍 Currently in Jersey City, NJ  
-📫 [sreevidhya129@gmail.com](mailto:sreevidhya129@gmail.com) | 📱 +1 (540)-686-9643  
+📫 [sreevidhya129@gmail.com](mailto:sreevidhya129@gmail.com) | 
 🔗 [LinkedIn](https://www.linkedin.com/in/sree-vidhya-business-analyst/) | [GitHub](https://github.com/yourusername)
 
 ---
